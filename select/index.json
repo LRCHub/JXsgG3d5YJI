@@ -1,0 +1,136 @@
+{
+  "version": 1,
+  "base_track": "300 Bars Freestyle",
+  "base_artist": "Kay-on",
+  "createdAt": "2026-03-08T15:45:13.336018Z",
+  "candidates": [
+    {
+      "id": "lrclib_1",
+      "source": "lrclib",
+      "title": "300 Years",
+      "artist": "Ivy Quainoo",
+      "has_synced": true,
+      "path": "select/01_300_Years_Ivy_Quainoo.lrc"
+    },
+    {
+      "id": "lrclib_2",
+      "source": "lrclib",
+      "title": "$300",
+      "artist": "Soul Coughing",
+      "has_synced": true,
+      "path": "select/02_$300_Soul_Coughing.lrc"
+    },
+    {
+      "id": "lrclib_3",
+      "source": "lrclib",
+      "title": "300 Boys",
+      "artist": "Good Rats",
+      "has_synced": false,
+      "path": "select/03_300_Boys_Good_Rats.txt"
+    },
+    {
+      "id": "lrclib_4",
+      "source": "lrclib",
+      "title": "300 Days",
+      "artist": "Erika Harlacher",
+      "has_synced": true,
+      "path": "select/04_300_Days_Erika_Harlacher.lrc"
+    },
+    {
+      "id": "lrclib_5",
+      "source": "lrclib",
+      "title": "300 BPS N, 8, 1 [terminal mode or ascii download]",
+      "artist": "Information Society",
+      "has_synced": false,
+      "path": "select/05_300_BPS_N,_8,_1_[terminal_mode_or_ascii_download]_Information_Society.txt"
+    },
+    {
+      "id": "lrclib_6",
+      "source": "lrclib",
+      "title": "Seek 300 2.11",
+      "artist": "Information Society",
+      "has_synced": false,
+      "path": "select/06_Seek_300_2.11_Information_Society.txt"
+    },
+    {
+      "id": "lrclib_7",
+      "source": "lrclib",
+      "title": "300 Years (Live and No Overdubs Version / 2013)",
+      "artist": "Ivy Quainoo",
+      "has_synced": false,
+      "path": "select/07_300_Years_(Live_and_No_Overdubs_Version___2013)_Ivy_Quainoo.txt"
+    },
+    {
+      "id": "lrclib_8",
+      "source": "lrclib",
+      "title": "300 Years (Live And No Overdubs Version \u0000 2013)",
+      "artist": "Ivy Quainoo",
+      "has_synced": false,
+      "path": "select/08_300_Years_(Live_And_No_Overdubs_Version_\u0000_2013)_Ivy_Quainoo.txt"
+    },
+    {
+      "id": "lrclib_9",
+      "source": "lrclib",
+      "title": "300.000.000 di topi",
+      "artist": "Francesco De Gregori",
+      "has_synced": true,
+      "path": "select/09_300.000.000_di_topi_Francesco_De_Gregori.lrc"
+    },
+    {
+      "id": "lrclib_10",
+      "source": "lrclib",
+      "title": "300 M.P.H. Torrential Outpour Blues",
+      "artist": "The White Stripes",
+      "has_synced": false,
+      "path": "select/10_300_M.P.H._Torrential_Outpour_Blues_The_White_Stripes.txt"
+    },
+    {
+      "id": "lrclib_11",
+      "source": "lrclib",
+      "title": "300 M.P.H. Torrential Outpour Blues",
+      "artist": "The White Stripes",
+      "has_synced": true,
+      "path": "select/11_300_M.P.H._Torrential_Outpour_Blues_The_White_Stripes.lrc"
+    },
+    {
+      "id": "lrclib_12",
+      "source": "lrclib",
+      "title": "Seek 300",
+      "artist": "Information Society",
+      "has_synced": false,
+      "path": "select/12_Seek_300_Information_Society.txt"
+    },
+    {
+      "id": "lrclib_13",
+      "source": "lrclib",
+      "title": "300 M.P.H. Torrential Outpour Blues",
+      "artist": "The White Stripes",
+      "has_synced": true,
+      "path": "select/13_300_M.P.H._Torrential_Outpour_Blues_The_White_Stripes.lrc"
+    },
+    {
+      "id": "lrclib_14",
+      "source": "lrclib",
+      "title": "300 M.P.H. Torrential Outpour Blues (Live)",
+      "artist": "The White Stripes",
+      "has_synced": true,
+      "path": "select/14_300_M.P.H._Torrential_Outpour_Blues_(Live)_The_White_Stripes.lrc"
+    },
+    {
+      "id": "lrclib_15",
+      "source": "lrclib",
+      "title": "300 in Blood",
+      "artist": "Mystic Prophecy",
+      "has_synced": true,
+      "path": "select/15_300_in_Blood_Mystic_Prophecy.lrc"
+    },
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "300 Bars Freestyle",
+      "artist": "Kay-on",
+      "has_synced": false,
+      "path": "select/pl_01_300_Bars_Freestyle_Kay-on.txt"
+    }
+  ]
+}
