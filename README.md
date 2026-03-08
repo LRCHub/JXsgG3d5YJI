@@ -1,0 +1,282 @@
+# Kay-on – 300 Bars Freestyle
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+もしもし ヨボセヨ
+響かす Shit 骨伝導
+音の上のこの戦場
+Ain't no 省エネモード Show em'off
+Give me アンチのコメント
+Kay-on すぐ溺れそう 殺せそう
+OK この戦争
+Feelin' like ポパイ Eat it up ほうれん草
+正面突破していく 業界の塩っぱい通せんぼ
+"奉先 呂布"みたいに蹴散らす敵 一騎当千Boy
+金生み出すゴールデンボーイ
+Rappers 八割ションベンボーイ
+猛勉強しろ これ挑戦状
+足りない カルチャーへの貢献度
+朝鮮部落 ゲットー育ちガリレオ
+天文学的リリック 実に面白い You already know
+お前らの弾丸じゃ効かん 防弾チョッキのMaterial
+ラッパーもどきは細い安い野菜でも回してろ
+Yo fuck it up
+Mumbling mumbling
+呟くラップじゃ無理
+俺ならガッツリガッツリたっぷりSpit
+ガッポリガッポリ
+全額BET Gambling, gambling, public enemy
+ピーチクパーチク カバチタレは駆逐
+あちこち暫くしたら自爆死
+ラップでしばくShit Boxing
+俺に死角無し
+ゴールOnly Exit 無し
+意気地なしはゲームに参画する資格無し
+刺青にしてカラダに書く計画
+Like 仁鶴師匠 一攫千金する噺と互角の歌詞
+選択肢 生か死かどっちの毒飲む Poison
+然るべき選ぶべき固く決心
+Gotta pick the red pill
+捨てるBlue pill 音を上げない性分
+村八分喰らっても Squabble up like a スマブラ
+俺なら Unstoppable
+他に類を見ない Feelin' like 八村
+Bitch don't kill my vibe
+俺達マイノリティ 成り上がりが生業
+俺達 HIP HOP お前らHP HOP
+大事な何かが足りない
+I'm a 魂燃やす子
+昨日より今日
+今日より明日がキャリアハイ
+呂布と関羽の次は俺が乗るよ 赤兎馬
+業界におんぶに抱っこの敵とかエリートは蹴り飛ばす
+適当な言葉ばっかのラッパー 観て勉強しろ 8 Mile
+ゲットーから成り上がる成功者のマインド
+Racist bitches 全員カプコン製のヘリ
+火を吹くキムチ 俺が上げるアジアの平均値
+アンダーグラウンドに光灯す 岡宗秀吾
+R-指定がデッカい背中で語る One for the show
+タイトなラップ 出来ない癖に付けるな メロディ
+自分の事と認めたく無い奴 付けとけ 弁護士
+Fuck a rap beef I'm tryna get my life lit
+コリアンKendrick 生き抜く Mad city
+牛は水を飲んで乳にする
+蛇は水を飲んで毒にする
+俺は水を飲んで韻にして金にして息をする
+喉からから足ガタガタ血だらけ腹ペコだが
+腹から声出す 我々同胞 声高らか
+バビロンの残飯 Let's get it
+Eat it up バルクアップ Lyrical monster
+イキリは We be killin' it
+義理堅い契り交わしたから Won't stop can't stop
+反吐ゲロ出るけど全てを飲み込むベノム
+From the bottom ゼロでも覆す世論
+さながらオセロ Better than ベムとベラとベロ
+3枚のベロ ケルベロス
+耳と目塞がれてもラップするヘレンケラー
+M&M GODZILLA バリにILL
+Baskin Robins サーティーワンよりも 更にBurn it
+up
+まだまだB&R バトロワ勝ち残るK&K King Kunta
+Korean King Kang Kwiyeong 過去の経験歌詞にし換金
+緩急つけてキック カッコ付ける
+柑橘系ちゃう ライムの収穫タイム
+Gotta get up 一か八か KILL or DIE 切るか張るか
+Get it again & again
+待った無し アタマ来たし 暖まって来たかたらカッ飛
+ばす
+Rap ヲタクの Rap attack
+朝から晩まで頑張らん御託ばっかの馬鹿なら
+片っ端から瞬く間引っ叩く STOP!
+喋り方がワサビなMIYACHI 俺の喋り方 キムチ
+Never never die キッチリ納得さすShit
+Cook するキッチン
+まだまだ上げてくピッチ 中指 Racist bitch
+일본의 김치가 빛이나 마치 レオナルド・ダ・ヴィン
+チ
+이 노래 들으면 Simon says
+쌈디가 말해 존나 잘하내 씨발새끼
+一回死んで生き返って 起死回生
+韻吐けば Ring a bell
+キロ単位動かす唐辛子 Feelin' like El Chapo
+Koreanだらけの大阪市
+あちこち 喧嘩のエンカウント
+熱湯みたいにHOTなFlow
+It's like that yall オイラのSOUL
+上島竜兵みたいに俺も熱い漢
+あの時 俺を無視したラッパー
+これ聴きゃ手のひらクルリンぱっぱ
+64 Bars じゃ腹一杯ならんから要らん葉っぱ8x8
+ビートの泉 Needs me
+引き摺り出す狂気 憎しみ
+敵から送られた塩 塗りたくる傷に
+この程度 味付けシーズニング
+要らない息継ぎ いや言い過ぎ
+ちっちゃい頃から言われた"お前やりすぎ"
+お前は無理だとか諦めろとか ガタガタまた言うとる
+ダリぃ事ばっかの世界で
+生み出す芸術 "サルバドール"
+ヒップホップのヒの字も知らねえ
+客前でも勝ち取る Respect
+ひよっこRappers 勉強してこい
+SHIHO WATANABE か Rap EJ
+Wack MC 策弄しようと どうしようもない
+ド素人共は解決に向け和解策 さぁ先に講じろよ
+Korean Japanese
+こちとら宮本武蔵 Shohei Otaniよりも二刀流
+武芸の申し子
+I was born by the river
+寒くてもクックするホットな歌詞
+俺達 ベロ転がし 明日も血だらけ足
+涙流し 走る That's my shit
+国からほったらかし 朝鮮部落のKing K
+Eybody wanna cut the legs off him
+荒っぽいとっぽい Top boyは俺の事
+They call me チョン
+この国から出てけと言われた度に
+出国してたら今頃 参る程 溜まってるマイルで旅行
+ピーチク煩い穴 塞いじゃる Shut the fuck up
+Power, poison, pain, and joy inside my DNA
+喧嘩っ早いが喧嘩大嫌い Inside my DNA
+HIP HOP inside my DNA
+PAC, ZBR, N.W.A, BTS  inside my DNA
+ここまで聴いてくれた 君達に敬礼
+スタミナ切れは大丈夫？
+38秒後に始まるB面
+春夏冬 言葉を吐く 俺コレ商い
+要らない心配 要らない心配
+俺達マジキチ 在日Got rich
+マッコリ My kitchen 大吉
+ガイリッチー版 パッチギ 알겠지？
+この街金持ちなら パチンコ屋か
+ヤクザのアパッチ アッパ達 아팠지
+아팠지 아팠지
+もし全ての指 切り落とされもいいが
+中指だけ一本 残してくれ Dear GOD
+まるで T-Pablow YZERR 俺もいつか
+肩並べ 築き上げる逸話
+World is yours world is mine
+HIP HOP is mine
+Already dead, Nothing to fear
+放たれた Like a bullet from a gun
+刻む歌詞 生きた証
+汚い街の月明かりがHIP HOP
+キリが無し 意味も成してない
+神頼みはやめた This morn
+Overwatchみたいにリスポーン出来ない人生
+Life is one time せやけど 生まれかわれる Reborn
+From 日出る国 此処 日本
+Represent 傷だらけの戦士
+Pray for 羽が折れた天使
+My pencil 刀よりも鋭利
+飲まず食わず夜寝ず 闘う剣士
+キッチリ回収 貸した借り
+俺との契約ならトイチ
+ハーゲンダッツよりも 高く付く利子
+冷たい高利貸し
+I scream 叫ぶ声は届くだろうか
+鳴り止まない 俺らの鼓動が du du du
+これすら音楽
+まるで両津勘吉
+みたいに 俺なりたい侠客 Wait is over
+傍若無人に大盤振舞う Baller
+Let' get it all
+俺が乗った霊柩車 通れば
+親指 隠す奴らより中指を立てる奴が多いな
+I'm all in 全部 Throw it up
+Jay Park みたくSexy 4 Eva
+JP THE WAVY みたい出る Coachella
+고개를 끄덕거려 I'm a go getter
+知ってるGyopoの兄さん
+Need some more paper
+俺ら頭を垂れても 媚びは売らん
+氷点下燃える コービーブライアント
+諦めたら 試合お終いだ
+あん時泣いたけど また Rise up
+Do it do it right now
+HIPHOPがレイカーズなら俺ジャックニコルソン
+流れる Good sound ギター弾くSong
+朝鮮部落の暗がり 歩いて見てきた Loser達
+俺もその1人 爪弾き
+されたお陰 今では十万馬力
+Hey クソ外人とか言われたし
+投げられた石 昔話 今蹴ってる歌詞
+2PAC EMINEM ギドラやAKのお陰で少しマシ
+お前の痛み 代弁
+せやけど誰のケツも拭かん
+I can feel your pain
+From the bottom 俺達 Never fall out
+生まれが貧乏な将来見えないB-BOYが
+刃物や注射器じゃなく マイク握ったからもう
+It's gon be alright
+皆が乗ってるバス そのノリに乗れないパス
+蹴飛ばすバス停
+俺 1人出発 ダッシュ
+哀しみ発 栄光に向かう TRAIN
+何年前？300万ゲトれない
+代わりに300バース蹴っ飛ばす 한국말이랑 일본말
+Red Hearts  Blue Hearts
+混ざり合う Black and White
+But I got yellow soul
+Till a day day day, I die
+I'm ready to die
+Please baby don't cry
+この暗い地元のためにも Gotta shine
+マイク握ったくせにビビんなよ
+蹴り破る扉 Kick in the door
+ビカビカに磨く美学
+Awich "ASIAN STATE OF MIND"
+Me against the world
+俺は歌えない チーム友達
+多く要らない友達
+志一緒の仲間は大勢 この街
+花山薫の侠客立ち みたいに챙겨줄게
+俺が先頭切って 札束降らして
+止まらんMonster まるで "尚弥井上"
+枠組み事変える "人志松本"
+Act like an angel "咲良宮脇"
+I'm gonna fuckin' beat u "Don Lee マドンソク"
+Life goes on
+俺も負けてられないだろ
+貴方は何してる人なの？
+ラッパーだよ 馬鹿野郎
+時々 思う
+Let me ask you where the HIP HOP at
+なんだっていい キッカケ
+俺も単なる HIPHOP fan
+きっと勝つと信じ カッ飛ばす 唾飛ばす
+俺 Neva have a break
+テッペン目指した癖に
+途中 チョコっと休憩なんてあり得ない No way
+例えば放水されても弾圧されない
+Burnin' my soul
+気を抜けばたちまち
+バビロンに刈り取られる 俺達 雑草
+共に闘った バーニー豪
+覚えてるあの夜 葛藤中の俺に
+カッコよくガッツと喝を注入 笠松将
+I'm a rapper
+職業じゃ無く 生き方や概念
+やりたい事もやれる事も 俺コレしかないねん
+刺青だらけ 就職出来ないけど泣いてない
+勘弁して なんでやねん
+ごめんさい 時々 Sorry for my 関西弁
+いつまでやんねん 腹減ってきた
+まだ足りない もっと蹴りたい
+手痛い 手一杯 体たらくから Get it right
+言葉を Delivery
+このバース終われば
+リハギの兄貴に連絡して 肉たらふく食う
+2次会 酒呑まないけど
+路地裏 煙を燻らすBAR RACK
+All Eyez On Me
+ラブもアンチも All Eyez On Me
+Not afraid — I have a dream
+If I die to night 墓参りしなくていい
+Represent 汚い Street
+遺書なら書かないし
+泣かない 弱音は儚い詩
+皆 ここまでホンマにおおきに
+Have a nice dream
+```
